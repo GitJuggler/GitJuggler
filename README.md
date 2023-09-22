@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Azizbek
+- 👀 I’m interested in playng minecraft
+- 🌱 I’m currently learning How to create minecraft servers
+- 📫 How to reach me ? You can chat to me from discord. My discord user name is: griefer1
